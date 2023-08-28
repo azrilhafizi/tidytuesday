@@ -1,1 +1,1 @@
-![](refugees.jpg)
+![](sea_refugees.jpg)
